@@ -2,11 +2,11 @@
    ✦ ✦ ✦   E D I T H - M D   ✦ ✦ ✦
 
 ─────────────────────────────────────────────────────────────
-📛 Project   : Edith-MD
-👤 Creator   : Bandaheali
-🌐 GitHub    : https://github.com/Bandah-E-Ali
-📱 Contact   : https://t.me/@bandaheali
-📢 Channel   : https://whatsapp.com/channel/0029VajGHyh2phHOH5zJl73P
+📛 Project   : Devil-MD
+👤 Creator   : Devil
+🌐 GitHub    : wa.me/923119416058
+📱 Contact   : wa.me/923119416058
+📢 Channel   : wa.me/923119416058
 🗓 Release   : 24 • November • 2025 | 02:00 PM
 ─────────────────────────────────────────────────────────────
 
